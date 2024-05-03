@@ -51,12 +51,12 @@
 
 他被暴露在人群中，在孤立中去见证。
 
-普遍来说，我们都要在一种张力中更加认识福音。
+**普遍来说，我们都要在一种张力中更加认识福音。**
 
 
 
 ---
 
 > 作者: JIJU  
-> URL: http://localhost:58225/posts/%E4%BF%A1%E4%BB%BB%E5%B4%A9%E5%A1%8C%E7%9A%84%E9%9A%8F%E6%80%A7%E8%A1%A8%E8%BE%BE/  
+> URL: http://localhost:1313/posts/%E4%BF%A1%E4%BB%BB%E5%B4%A9%E5%A1%8C%E7%9A%84%E9%9A%8F%E6%80%A7%E8%A1%A8%E8%BE%BE/  
 
