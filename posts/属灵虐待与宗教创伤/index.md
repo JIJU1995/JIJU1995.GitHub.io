@@ -1,10 +1,10 @@
 # 属灵虐待与宗教创伤
 
-来源：
+视频链接：
 
 [公开讲座：属灵虐待与宗教创伤 - YouTube](https://www.youtube.com/watch?v=DBNsUF1cY-0&amp;t=250s)
 
-[【视频】信仰与学术讲座：属灵虐待与宗教创伤 (gospelchina.cn)](https://gospelchina.cn//article-detail/187.html)
+[信仰与学术讲座：属灵虐待与宗教创伤 (gospelchina.cn)](https://gospelchina.cn//article-detail/187.html)
 
 -----
 ## 前言
