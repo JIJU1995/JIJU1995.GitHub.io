@@ -32,5 +32,5 @@ _**十字架可换公义冠冕。**_
 ---
 
 > 作者: JIJU  
-> URL: http://localhost:1313/posts/%E8%B0%81%E6%98%AF%E7%A5%9E%E6%89%80%E5%B0%8A%E9%87%8D%E7%9A%84%E4%BA%BA/  
+> URL: http://localhost:52390/posts/%E8%B0%81%E6%98%AF%E7%A5%9E%E6%89%80%E5%B0%8A%E9%87%8D%E7%9A%84%E4%BA%BA/  
 
